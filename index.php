@@ -3,14 +3,14 @@
 
 <meta http-equiv="content-type" content="text/html;charset=UTF-8" />
 <head>
-<title>Live Draw HK Havadea - Live Hongkong Havadea - Live HK Havadea - Live Result HK Havadea</title>
+<title>Live Draw HK - Live Hongkong  - Live HK  - Live Result HK </title>
 
-<meta name="description"  content="Live Draw HK Havadea - Live HK Havadea - Live Result HK Havadea - Live Hongkong Havadea, Situs Pemutaran Hongkong Havadea, Live Draw Hongkong Havadea, Live HK Top Havadea, Pemutaran Bola Hongkong Pools Havadea." />
+<meta name="description"  content="Live Draw HK  - Live HK  - Live Result HK  - Live Hongkong , Situs Pemutaran Hongkong , Live Draw Hongkong , Live HK Top , Pemutaran Bola Hongkong Pools Havaea." />
 <meta property="og:type" content="object" />
-<meta property="og:title" content="Live Draw HK Havadea - Live Hongkong Havadea - Live HK Havadea - Live Result HK Havadea" />
-<meta property="og:description" content="Live Draw HK Havadea - Live HK Havadea - Live Result HK Havadea - Live Hongkong Havadea, Situs Pemutaran Hongkong Havadea, Live Draw Hongkong Havadea, Live HK Top Havadea, Pemutaran Bola Hongkong Pools Havadea." />
+<meta property="og:title" content="Live Draw HK  - Live Hongkong  - Live HK  - Live Result HK " />
+<meta property="og:description" content="Live Draw HK  - Live HK  - Live Result HK  - Live Hongkong , Situs Pemutaran Hongkong , Live Draw Hongkong , Live HK Top , Pemutaran Bola Hongkong Pools ." />
 <meta property="og:url" content="index.html" />
-<meta property="og:site_name" content="Live Draw HK Havadea - Live Hongkong Havadea - Live HK Havadea - Live Result HK Havadea" />
+<meta property="og:site_name" content="Live Draw HK  - Live Hongkong  - Live HK  - Live Result HK " />
 
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
 
